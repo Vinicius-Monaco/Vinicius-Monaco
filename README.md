@@ -2,5 +2,5 @@ Hi, my name is Vinícius Sitó Monaco, i'm from Brazil and i study System Develo
 I'm 16 years old. 👶
 I like play some games, like Call of Duty, Grand Theft Auto, Fortnite, Rocket League, etc. 🎮🎮
 Playstation > Xbox and PC. 🎮
-IFRS 1/4 (25%) 🔋 🔋 🔋 🔋
+IFRS 2/4 (50%) 🔋 🔋 🔋 🔋
 É os guris. 🧉🧉🧉
