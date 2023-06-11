@@ -4,3 +4,5 @@ I like play some games, like Call of Duty, Grand Theft Auto, Fortnite, Rocket Le
 Playstation > Xbox and PC. 🎮
 IFRS 2/4 (50%) 🔋 🔋 🔋 🔋
 É os guris. 🧉🧉🧉
+
+por que eu coloquei que eu gosto de jogar alguns jogos??
